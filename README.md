@@ -5,7 +5,7 @@
 🌐 Website: https://haiva.xyz/  
 🐦 X (Twitter): https://x.com/HaivaXyz  
 
-CA pump.fun : xxxxxxxxxxxpump
+CA pump.fun : 7rec4LXtUWaE3EuCQTPdaPZwDUqaegeYbT44FqzTpump
 ---
 
 ## 🚀 Overview
